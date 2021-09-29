@@ -1,1 +1,3 @@
 capitulo 6
+
+falta o capitulo 7...
